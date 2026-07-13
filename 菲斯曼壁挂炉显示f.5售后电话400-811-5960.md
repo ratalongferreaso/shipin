@@ -1,0 +1,655 @@
+菲斯曼壁挂炉显示f.5售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月13日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括菲斯曼壁挂炉显示f.5售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+菲斯曼壁挂炉显示f.5售后电话400-811-596024小时售后服务热线上线（（2026年07月13日官网公布）最新公告）
+菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+菲斯曼壁挂炉显示f.5售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+菲斯曼壁挂炉显示f.5售后电话400-811-5960公司主营菲斯曼壁挂炉显示f.5售后电话400-811-5960维修 →菲斯曼壁挂炉显示f.5售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，菲斯曼壁挂炉显示f.5售后电话400-811-5960服务承诺?.
+北京市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/5ae66340280ed51e8bd805a3a1445d60aa86d58c
+。
+南京市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/puxixikark/news/commit/ce30d929e38fa0bfbfc52060b00dfa95a5c402ed
+。
+秦皇岛市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/f78b3b5e59f52a29241f6a2781599bd2e013d96d
+。
+珠海市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/preaslson/wuhan/commit/5798090aec0006c97ab15436411993f436f4659a
+。
+安康市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/89f3cb759939c508f020180d37b870351eb97b2c
+。
+安庆市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/puxixikark/news/commit/21381e033d5231348a870951d7b2511fdbcdb07c
+。
+鞍山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/deb68daf017ac3ba3e9826fe1f7aafeac5af2530
+。
+安阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/preaslson/wuhan/commit/01077c6910ccedfda3c6af8562f88971ae15561f
+。
+巴中市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/78f81d70ad6eb09451c4e2fcc8e8bf9c4e749a54
+。
+百色市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/aae1ac8fa55771f9304b26fe3e479ebef5790d9d
+。
+蚌埠市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/puxixikark/news/commit/97162b460ed76a7311df1d0c43a971a78f1cd011
+。
+保定市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/preaslson/wuhan/commit/00c50488d151865157fa74303700e30fa5a66329
+。
+宝鸡市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/31cf233f27daf7b624c7622cbd74d16c3fb0dcf1
+。
+保山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/4575ef19cf3610823540d8a677e4b9967602340b
+。
+包头市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/puxixikark/news/commit/1b1b7e6a6e0983545edbf7552a5225a7ffbd7fa4
+。
+北海市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/preaslson/wuhan/commit/a90ab8e1524e8a25f6653486958a262264840b5c
+。
+本溪市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/a89830830d91415ad1cab99bd46c35015616754b
+。
+滨州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/2bcb7959b612b79b2a68c8fb4c768edec44c0e3c
+。
+博罗市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/puxixikark/news/commit/292ff11e348cc414e05726a173143bb048f12b52
+。
+沧州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/preaslson/wuhan/commit/a3de6946be0c31acb3d38f02b4a46f0491e17a13
+。
+长春市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/84c68e4120199d9307e4b777c9218c4110e5ae2d
+。
+常德市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/puxixikark/news/commit/630b8135090437eb2a2d0a3d328435a3cfbd90c7
+。
+长葛市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/afe8eccf8486c12e62c252b37d432e5260c7b55d
+。
+长沙市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/preaslson/wuhan/commit/7e91f56e133f766fc512e617572acfa954b9f232
+。
+常熟市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/fa8a2128402951d18cd68851176df3d87106060b
+。
+长兴市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/6ffb100557da850a8ecc9547423b28431540d306
+。
+长治市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/puxixikark/news/commit/5e69a86ddf2e99467bfd24f3e8b840554c4d1208
+。
+常州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/preaslson/wuhan/commit/ed205b8f0483edbc42390d93226c57360c514f93
+。
+巢湖市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/733caa9c61ef2f5fc02441325354e25815a9bf80
+。
+朝阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/c344274e54b153b12d032bf2eac8ff185173b3cf
+。
+潮州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/puxixikark/news/commit/4a5ac8c43bdf9be577b9f0bed67c79ea21643dfb
+。
+郴州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/preaslson/wuhan/commit/987d40f5eb2c92a79dbec499672414a5e694cfc1
+。
+承德市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/5f0f450956d82a34ed81acc263f964ffd7eaae2b
+。
+成都市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/4412c1015c804478e7d7a83632b2decf46861243
+。
+池州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/puxixikark/news/commit/f8a9e49185251cbaf5afd03b0c860da65edfd9d6
+。
+崇左市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/preaslson/wuhan/commit/45e8db64d20be7842d0edd53bfcadd82de512c3c
+。
+滁州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/39c617862c7d5d1f4dcc6245c26b1cf931fe0160
+。
+慈溪市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/7db4ed98e31576757c99701855ab9d8cc10c2b9f
+。
+大丰市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/puxixikark/news/commit/7cccf8929cb416a74ae6d3837964cf98a8d9f2a7
+。
+大理市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/preaslson/wuhan/commit/1f92c215c15de89142b8d1597dfb602fce331797
+。
+大连市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/efc8917c5c5c4ab0b83df7f13a775b9904b66602
+。
+大庆市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/24fc688cf0a3d23d32cbd65cd495500d29d97a64
+。
+大同市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/puxixikark/news/commit/de137c7d59b1186948de839d4e45a839a853e22d
+。
+达州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/preaslson/wuhan/commit/14b2d7fbbd8225ede8d69d805b103d41803e2ddf
+。
+丹东市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/61837d153d20b28cbf737769399b3e7d41f09b94
+。
+德清市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/84415926052de756ea79932fe336786af58df842
+。
+德阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/puxixikark/news/commit/3fdd2a318328a8b187354875add0c77d6916fedf
+。
+德州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/preaslson/wuhan/commit/85d9304f4915de2afc2eeb0cabcf799306b4f567
+。
+定州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/5ca22e0ef91e364198f41a0ddae28fd5bb5abbb4
+。
+东海市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/58226bbd5504c0af79b0a9c5797e9ae1e343b17b
+。
+东台市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/puxixikark/news/commit/51661925581a78ea0c9c02a34dd59d2a75ee086e
+。
+东营市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/preaslson/wuhan/commit/cfadc1d24c7f0b85e5f3a73834ffe75e2344525c
+。
+东莞市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/48aa4121d4b204dc2d14df71c814368609fc2cea
+。
+鄂尔市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/cfaddaf0789547dbd42728408ade0f9eaa683c92
+。
+鄂州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/puxixikark/news/commit/7e29e5a1b14b52d48dd8df9b0e578edc3a4bc2e8
+。
+恩施市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/preaslson/wuhan/commit/fe223a95e5979321cba4e3f0efb1ff3b27e11185
+。
+防城港市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/f23d9a2457db74890e3cd93830216537807d6911
+。
+佛山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/905f93055d1f0489baa0d4a2663b1e626b9afd65
+。
+抚顺市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/puxixikark/news/commit/9d57cafd0ca09594e24369db2e8b41a6293a73ea
+。
+阜新市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/preaslson/wuhan/commit/c7119d5b8b37a3f7c7323604949eaf4c67ec16d7
+。
+阜阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/db70d9d258fe357c39ed304448e79ea4fbd4e31d
+。
+抚州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/a0e871adbb067e062aebcb6a67cacc3464b31312
+。
+福州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/puxixikark/news/commit/ea0aa3f64949de3855471d94605defc037bd6832
+。
+赣州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/preaslson/wuhan/commit/ca71e5827ba217e3d1517e2724b5ceb7de7ce055
+。
+馆陶市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/cd81f98b1902f13b976f9499750a184042e56c5d
+。
+广安市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/0e4c54d87b9d0a4ad64914548e013e869fb8ac51
+。
+广元市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/puxixikark/news/commit/6a65817e3bb1596993c2cc56b13571b5930294cb
+。
+广州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/preaslson/wuhan/commit/a2bc1e26113739862d773302486e7ef5bb4af42a
+。
+贵港市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/25463aa6ca095aea3e8a3473a69776c99dd6412b
+。
+桂林市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/dbbe7bcb1ed46eb927b05b9b57b34fd081a4ad55
+。
+贵阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/puxixikark/news/commit/f847daab5c727296ee3563ed9a0c1eca311e99e3
+。
+哈尔滨市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/preaslson/wuhan/commit/6656482f9891a224604b4d00518a85e8362a00ec
+。
+海安市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/747b08d4579de0325f2b7ffa03d432886316a7d4
+。
+海口市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/1ce4e74c7b9a3416b56c5660c1315e29764bda4b
+。
+海门市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/puxixikark/news/commit/4eead72cab509bc501705f9ecd593c7b51a214eb
+。
+海宁市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/preaslson/wuhan/commit/3f160b7d4ae0df22011f2d6b1ff9d2dd623e7370
+。
+邯郸市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/4935e8a9855752f041f5b2238cab13720a7f8bf8
+。
+汉中市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/0496a68724fa982ee9fcbaade27c2e984f678da8
+。
+杭州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/puxixikark/news/commit/f95a53a13769f918e7d948fd75a54ff62d043895
+。
+鹤壁市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/preaslson/wuhan/commit/e57508041f200c717c911dae437b446fd72d921f
+。
+河池市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/a0e95c63b03122b5485d093521a4cc636cdab6e8
+。
+合肥市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/d34f3642343e58066f87d95d16c131d847969d02
+。
+河源市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/puxixikark/news/commit/42bc38d0c802ed3ca63b132f33af947d333755fd
+。
+菏泽市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/preaslson/wuhan/commit/b0c42c3c448bd150d139855e85cfa88142d8f70f
+。
+贺州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/662882e9450ccbafd77367ba7b63561110ee7b13
+。
+衡水市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/35fd2a7f613486b0031394559f0b1011af3f7a25
+。
+衡阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/puxixikark/news/commit/3dcaed1a252b216d398f068642f3e3b2c16be707
+。
+呼和浩特市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/7a25793a8b7b202af21e51f6c0fd39206094a25d
+。
+葫芦岛市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/preaslson/wuhan/commit/ed0eb192c0fb2d6a82a55a7adc7f9c09e90728bc
+。
+湖州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/794fda6f73618626cea18938da1fb13c19790b0e
+。
+淮安市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/puxixikark/news/commit/19b2c5fe6c8ddaa99d4fa188dcb4d1dfbb7a1a24
+。
+淮北市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/preaslson/wuhan/commit/9b7070b574b55f7a92dea2fe95528acb2ccb77f3
+。
+怀化市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/2cc331824efac90bc68c6588cf77a78ab92a4105
+。
+淮南市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/c0a058679e6c712ffaaeba6153b278043dba9c89
+。
+黄冈市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/puxixikark/news/commit/ef48ce4f16967cf446d98d0e80785a75ef1ab014
+。
+黄山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/18ac9962cc49420ca43440ff26c0b48750024766
+。
+黄石市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/preaslson/wuhan/commit/66229d697d59f95164b6861399b5759bd393d9c9
+。
+惠东市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/cc037cca5994dda2de3e0548c11275fa3e84875b
+。
+惠州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/puxixikark/news/commit/5300deee304bd2be8eac563e2c7d82218e54f784
+。
+霍邱市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/f93e41ab78d088570e90661b5dfe79b617b92f7e
+。
+吉安市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/60f79c892609c632513b424807ef41cda30e74f7
+。
+吉林市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/preaslson/wuhan/commit/472a27149b004982036054fc05aae5923d566f50
+。
+济南市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/puxixikark/news/commit/f1e8ab789b1de279a36fef6b4bd75e0dabc97d11
+。
+济宁市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/preaslson/wuhan/commit/25d2ade6b569fbd3469c21b506369e04be5b67e2
+。
+济源市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/6d1f68d5584f548ecc4ea80ba094491752670092
+。
+佳木斯市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/1c700e6aa416df576978d07dc633fb67893ecacf
+。
+嘉善市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/puxixikark/news/commit/ab766c7b8c7ec1af22cdad14395e9b98dcfc7a9a
+。
+嘉兴市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/107c5c6b6c0e84abe35f759965fb128f55018d8b
+。
+嘉峪关市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/1f7349c15eccd1a1aad18b1564e8d6ed9eaf3f50
+。
+建湖市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/preaslson/wuhan/commit/c02efdf8f1b91a6a26269375fc2774e4ce730ccf
+。
+江门市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/puxixikark/news/commit/308f4668ba432d82c9d2d920cc44aa98a8a62117
+。
+江阴市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/fd28e7699b45f4716e0a9dbcec22660bbaad5b31
+。
+焦作市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/preaslson/wuhan/commit/62ba89996b6780f7563a36835b54bcd6d28f7f81
+。
+揭阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/0856bfd13b57b0e5c15d7f641ec497fce7c88886
+。
+金华市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/puxixikark/news/commit/ad114f8272300021ca4d4fff8d349ca0a0810255
+。
+晋江市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/preaslson/wuhan/commit/7c0b366ee21d88fbb5c97d3fef93a3bec7ecbc84
+。
+锦州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/515d7b0de95f0d23816f53ccc0adb4f0fb6b2296
+。
+景德镇市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/7aa009e386bf5d82ddc5c2d564d784f7e2c56341
+。
+靖江市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/puxixikark/news/commit/b88ec4b4f7bf36b0cc552a31a5334ed973775378
+。
+荆门市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/preaslson/wuhan/commit/d728b355fd033d301acd575b40fff589a9d92bd3
+。
+荆州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/70a0960eefc3060d7b70ea79343a9a7362b90710
+。
+九江市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/bab04f74585f20a4da19623b72f33d7a33f46756
+。
+喀什市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/puxixikark/news/commit/461eb313b2d8ed9df36d09a141be71f964bb50a3
+。
+开封市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/preaslson/wuhan/commit/7b99aead5a07f4b086e6ac02c345d03cd4d2c5e4
+。
+克拉玛市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/9018731d10d099c0f43438a1df0ef611e837a14e
+。
+垦利市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/b1cf12321aa3611138bf2e4d4b88a8727edc7851
+。
+昆明市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/puxixikark/news/commit/77f60caf83043523f79218353c5f8ea216c7290f
+。
+昆山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/preaslson/wuhan/commit/467c2f21e20bac143f0c3e80bf8e339d4d613627
+。
+拉萨市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/533f3db3d7269ddb07577186c847ba12d9f8e704
+。
+来宾市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/95d1bf68befc59254becf03d11757f72f7b0b6c7
+。
+莱芜市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/puxixikark/news/commit/16739b596a8fe2bb4ebdd095fc40442a62f0e901
+。
+兰州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/8c6fac909a30c89d6d225edb82bbbbe7be4c549d
+。
+廊坊市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/preaslson/wuhan/commit/13eb1d98ce12919c34773d9a554db8cdccc327c3
+。
+乐清市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/66cdb64ec276a3e5440fb0ac3ce665d7c1120602
+。
+乐山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/puxixikark/news/commit/abb15dd80c9c7e6747b7abc869d6c4ba9a607793
+。
+丽水市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/preaslson/wuhan/commit/50c03232667998ef397a37b9301c5ca54d909f3c
+。
+连云港市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/245f12ccdba68607768dfe4cdfee28ff0ab1b00f
+。
+凉山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/d80e3679480853a981b733b9093012351af50331
+。
+聊城市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/puxixikark/news/commit/ce191780e51b363d40804df560da1c31f1b5428b
+。
+辽阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/preaslson/wuhan/commit/5e5776633c7e93a8ec9d324fe51bfcf8984b1689
+。
+临汾市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/c06712e15502856f4e9c311f07a2236bf02dbc11
+。
+临沂市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/ec83755ec2263950343949297ddfa3b01c6315c1
+。
+六安市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/puxixikark/news/commit/0edb361ec4072eb1ab24a6640e0ab7b0c580925d
+。
+柳州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/preaslson/wuhan/commit/56b401de889c25ef09888a3066bbba9ad6b57809
+。
+龙岩市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/ca8fb74568d45c2184a73818e5881a7a3cbf87dd
+。
+娄底市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/b3fa9762110c3babf5c4a41091b10332947d2e0e
+。
+洛阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/puxixikark/news/commit/378137f68cd5815011d9edca66ae08e0c88f93ab
+。
+马鞍山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/preaslson/wuhan/commit/a0ba71ae007c6496a68be1920ad0d5739773441d
+。
+茂名市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/1ca896f53c5a0a775e27cfd9f58fba616a16e861
+。
+眉山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/3e875ea8b51baaeef47b8c57ead37a2cfb3d170a
+。
+梅州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/puxixikark/news/commit/9e2004011a65006fcdda2cf457eccb9b97df4d95
+。
+绵阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/preaslson/wuhan/commit/5cf535798e2ba1297c7c6a648b364b1235b4c414
+。
+明港市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/de008721f2a69f2419c9d61aceadc328f62e4ffc
+。
+牡丹江市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/57f992bd05892b062f919b03078104d9d832410c
+。
+南安市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/puxixikark/news/commit/4cf8b6377c052277fcb5209261021044ac9a1193
+。
+南昌市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/preaslson/wuhan/commit/adce71b345bae576b73e2f9dee777f0f61e2baa7
+。
+南充市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/5e040792038e2cc876e25aff27570c8e3521c6d3
+。
+南京市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/puxixikark/news/commit/ac0c5e3b03592a6782a33ee0b30f5edf287a9405
+。
+南宁市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/e4ccce40a79ecf2b2ca341bf0f488b9861161ce2
+。
+南平市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/preaslson/wuhan/commit/f021b724b103e0d9eada12784b07667dbe8fd880
+。
+南通市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/7ba52967ade8669a9058d18981abcab14d0a68ab
+。
+南阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/puxixikark/news/commit/41cd1d2d3612fdd633f0eccd75581bdd250d38fa
+。
+内江市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/86fe8189726ab7758cfcb547a08843e7b19792a3
+。
+宁波市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/preaslson/wuhan/commit/266744e8d228a2cbc89f063a5c5fc633b38d44b7
+。
+宁德市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/c40ab0c804b07adc63aec2524cab232f39a8575e
+。
+宁国市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/puxixikark/news/commit/d3ecec2b2bd184e3d5bc603da404ea1af5a0077f
+。
+盘锦市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/1b9649f28b2efe4aa018d9f8c4b2780aec498975
+。
+攀枝花市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/preaslson/wuhan/commit/c77bbbcb4ef6e6b63bf76f4d97852050f95cf74e
+。
+平顶山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/puxixikark/news/commit/5b3eae436e0a2ac9f39f7357c1953f0feb343fbd
+。
+萍乡市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/d8662d0eee32198a4579ecc85f0be1d6c5754929
+。
+莆田市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/e821dcac38b4575b652ed302a1943edfda6510d1
+。
+启东市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/preaslson/wuhan/commit/6385622598a9912f7a1e08b7346ca76dbaaa6638
+。
+齐齐哈尔市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/5c4ee789083939ab84f19fc9e5a4d19b70ada59f
+。
+潜江市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/50684191d96f96505a4eea6134b24d785cdc57bb
+。
+秦皇岛市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/puxixikark/news/commit/2541f68ecc2a7ba2d892f9bcde167adb02d1bdc2
+。
+钦州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/preaslson/wuhan/commit/0f215e8b66ece34d2fbd8e5976b85e8ccdc7719c
+。
+青岛市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/886d41a2fa40870178b4e4bb3457c6acaa54a252
+。
+清远市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/273fde8b565ad85d85007236e4d85158e9162314
+。
+曲靖市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/puxixikark/news/commit/5d1d3a5d51ffc8e093148c6350645fc96d3f0fd2
+。
+泉州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/preaslson/wuhan/commit/3d456c8fa595a2a3ef3576563dad877fc4ba0fc1
+。
+日照市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/82999acbc4f0e35b00edf12d7499283c0b6e9c53
+。
+如东市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/6007f3a08b267d3654d3c903f27d2f636ed3e53b
+。
+如皋市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/puxixikark/news/commit/0d3f15d99574ebed4fd674ae22e17575bebc930b
+。
+瑞安市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/preaslson/wuhan/commit/43ee8de3febdfc8eb18702c1800d849c5aa8a578
+。
+三门峡市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/7a800657b1f004e36df65b4d00fd5d43b01b24ec
+。
+三明市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/e4480ed91cb53760178dae9065b91325dab5df94
+。
+三亚市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/puxixikark/news/commit/41ff93d7130b7d294eae187d0341777d2e4229e1
+。
+汕头市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/preaslson/wuhan/commit/c1f8848a911b838cbac8a0c4978057fa80c86959
+。
+汕尾市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/1169ffd0ebeeb369171c166358fe7a2aee5ba73d
+。
+上海市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/puxixikark/news/commit/c5767edaae11d3037ab5daac29535a0bd8a12d27
+。
+商丘市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/preaslson/wuhan/commit/41a9e5eed520be98d60d4d6811c38afb93142440
+。
+上饶市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/544400b37c542c28b201b685bf1317a302928727
+。
+韶关市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/puxixikark/news/commit/12931b693d5871cc7f76343529de0611c0b0f3f9
+。
+绍兴市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/cb814395f46d61e7af9d120b15e5caee1520d4c3
+。
+邵阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/preaslson/wuhan/commit/1ade3f2bdc478ab7c1bd2ae3eb078e7f36da109c
+。
+神农架市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/627005e99052a5692341f5d1cbd913c31c4a5e28
+。
+沈阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/puxixikark/news/commit/7423148f7582b96407fd3d407279cc679fca1a21
+。
+深圳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/preaslson/wuhan/commit/3cc2930044039367bb0f0adc1ad5a568d6a67033
+。
+石河子市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/fb2860959eb4c76b329e3efe2113f27bdc9f78db
+。
+石家庄市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/a6c01f31ea80600b1bc5030224cd9d2ab3905a91
+。
+石狮市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/37f8d8549e128aa7093351f433115328445d30c9
+。
+十堰市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/puxixikark/news/commit/1d3595f9a263dc940a376182aae153f3efbe4855
+。
+寿光市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/preaslson/wuhan/commit/41beb6afb367f419c33bbb81d892a07a70114afd
+。
+顺德市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/c6ae920a6458136fc0c9303314d526b421df5255
+。
+四平市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/8a669933e09215e0f976a6bc9779178d302141cc
+。
+宿迁市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/puxixikark/news/commit/15e0ea56c4134405098c3254fa0c2630eab53b5d
+。
+苏州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/7206c78653fdce320a460e210bc955e6ad4790e5
+。
+宿州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/preaslson/wuhan/commit/411d33e2bd78d9101e7b1be51bdc47475eb8478a
+。
+遂宁市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/puxixikark/news/commit/5f29a07695e6c42550325aa6e0d09fd287066488
+。
+随州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/8312d4551b2a2a6d68153bb2e3a1a1f0db4d8438
+。
+泰安市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/7423341b98e310a64a8a4bb995b8b4ec9b2e28eb
+。
+台山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/preaslson/wuhan/commit/0ce16a198011896c74dbe42b76644fb310ef7eb8
+。
+泰兴市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/c8556978497ff46f78e6bf80a604ee1d7279e6fb
+。
+太原市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/puxixikark/news/commit/8eff142641bd69daabff6314e04ca47d47fddf6e
+。
+泰州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/preaslson/wuhan/commit/6f4b99e659ddf2559e70d0629c8cb75cd0888b9b
+。
+唐山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/211915f794aa0124c5eee41c6bc9b8e7d9e6c7c9
+。
+天长市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/puxixikark/news/commit/17960f5c3808c788538be7fd68dbb46b9486b674
+。
+天津市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/04c8a68e50ebabeafb6898dcd4cec8bd6c01543a
+。
+天门市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/b36fcedd35b3e9cf458df4d23f81d3a9fe8d14a5
+。
+天水市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/preaslson/wuhan/commit/67acd631b0fa38064db0d32a71d829d7289d4ff2
+。
+铁岭市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/puxixikark/news/commit/4b56b5220209493f9b7d335c13d319511d893b37
+。
+桐城市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/74a855ac39c8c1f76389305af72df2123d01cbb9
+。
+铜川市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/0b8e49271b7cafb3cce60d2e3605bb8967c9397d
+。
+铜陵市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/preaslson/wuhan/commit/a6ea810b267e9fe04e363e917771b7ade5e1d05a
+。
+桐乡市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/6ff316b5328ec9be2a12832b0cf92a447b088e90
+。
+瓦房店市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/puxixikark/news/commit/cca23ce961eed117db0269ddfa61fcd9f5779d4d
+。
+潍坊市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/23543ce721c5f93bae6fa8c9bba849aa80bb792f
+。
+威海市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/preaslson/wuhan/commit/f935e00a30efad8754b7985ad82f581c4ae988b7
+。
+温岭市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/puxixikark/news/commit/e9296a4d6f6c7274426aa50ef9882df1783fa8a8
+。
+温州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/2a6bba4e4a81092651c5de04c5785fec5b3f9041
+。
+武汉市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/6fcfffc4d09e41b23ccb2db57e8ad73244fc5e37
+。
+芜湖市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/preaslson/wuhan/commit/507ab2cf9e331809991c239cff7570a284ec4628
+。
+乌鲁木齐市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/puxixikark/news/commit/3b4a5f367ef3f5de397eece05ee67da4d8bedc86
+。
+无锡市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/4948ab1f0a663feff4abe197da836710d43934e8
+。
+武夷山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/56d21cad23188a7cdaf5572f652b80f36e32d906
+。
+梧州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/preaslson/wuhan/commit/745adf4ba2244a6745a1953697dea3fbed824ce5
+。
+西安市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/a7a2b45d0fa37203cc0452146ff31cd0d35f6b14
+。
+西宁市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/puxixikark/news/commit/614eb7421e62ee5df8d80a2df3ea66ba0089c4d2
+。
+厦门市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/22accbf8284f619a5006ce7380a84feeb455f60b
+。
+咸宁市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/preaslson/wuhan/commit/1cdd95ddaf75c8486c94e8b36dcd7576d4d6f65b
+。
+仙桃市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/puxixikark/news/commit/1c6214d665fbf8750300e60c397eed7a9def69a7
+。
+咸阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/d3b40f96eff279aaaab14be4f656868e972ccec4
+。
+襄樊市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/preaslson/wuhan/commit/9b0cbf9fc59a8942d2ea20cf194dbfd46a17f2d5
+。
+象山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/4fc42d0ca8a89f965c2098cffc3cd2cb108b365f
+。
+湘潭市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/puxixikark/news/commit/bb560db71d3cef01982e7865868e6af4847e375c
+。
+湘西市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/c517e9ee709913b8650b16956d5ed6e8ae90a120
+。
+襄阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/94758f066558cd882015d72a432a5f09dc3c71a5
+。
+孝感市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/preaslson/wuhan/commit/502b7d0346722bcead26d09aa9332097140ca789
+。
+萧山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/85d0b9275dbba28f0cb335c658960f4eaeec1b29
+。
+新乡市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/puxixikark/news/commit/78a29d1e4aa60f3edbe8c012b51ee533dfc2f23d
+。
+信阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/954c4326ef36d6555cfb03e7167f350369f3ed77
+。
+新沂市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/preaslson/wuhan/commit/596087696a42828f8647e84f742d25f6b6ffd9b5
+。
+新余市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/puxixikark/news/commit/6c110bf5cade4ff518ae93b46a17a951f9450a7b
+。
+兴化市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/212e202f5e1cb59994f5a4138e6489e8d7740300
+。
+邢台市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/467fceb5044e39559f9bb10326da30677efdae59
+。
+许昌市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/preaslson/wuhan/commit/bf48d98a9244c32183a143fd70f4a6bf0aa1c29b
+。
+徐州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/puxixikark/news/commit/ca8db9e972b2c8d6386b1061741f5d70825f122f
+。
+宣城市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/30f80ef825b699377637a8097cc187251cb22707
+。
+雅安市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/966ef2e10ac97daab936f1df098c62f9cb6ec339
+。
+延安市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/preaslson/wuhan/commit/f38896dbef48ed16239dfbbbcd30da80b8283cce
+。
+盐城市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/736ea515548d5db4686900ca26aa436fd1247aee
+。
+烟台市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/puxixikark/news/commit/69e0afa001a9f54ac6a29c907460cd4a8f30ceaf
+。
+阳春市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/preaslson/wuhan/commit/ae2579279cd025d5d837dde0070e707dc9d7f593
+。
+阳江市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/b31e015b78867c2bb5adf3ac842e06a153293c0a
+。
+阳泉市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/puxixikark/news/commit/dc9d09e4cfc735707a1ca71ce35e14e6f80cd629
+。
+扬中市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/e808a0d8aa53b5fc00d07f55fae3e201341d834a
+。
+扬州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/preaslson/wuhan/commit/7bccb6024a969c02b1f40b7d51b4013a1773b9f4
+。
+宜宾市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/a9b4ad573c5c0e1bd3f22958f846c00a1d003402
+。
+宜昌市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/puxixikark/news/commit/9db68b938d85d5e94168678dfe1bf0bfb2a68305
+。
+宜春市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/998823b07e4ee3693a116b6bef7dafa15f9429b2
+。
+宜都市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/preaslson/wuhan/commit/d599208a2f6209b74b73bf8d8f65eb0c98e1151a
+。
+义乌市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/27ff183ea3d9d6d22fbb4a66ca7948db46ad7697
+。
+宜兴市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/52a3f86a9c806db13842e86600dcc97514f19fbd
+。
+益阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/puxixikark/news/commit/8c4fe83b72cc862f82bb458de68ca28015bfa49d
+。
+银川市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/preaslson/wuhan/commit/dedb3d737ae5dba076af53419f8cbfcd4ff967aa
+。
+营口市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/573ab0f463199d678f2a8f50058320c51592a532
+。
+鹰潭市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/56b03299a043f43a80a1318047c8e38eadfc6db4
+。
+永新市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/puxixikark/news/commit/a1ae72f22946b3228d9c251226dd5480cbc4c47f
+。
+永州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/preaslson/wuhan/commit/041cbec3317d72971513dcf54f44dbd9ce5e9462
+。
+榆林市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/1f9364d100ec7e0e4a8d04f32441e14b44f8c871
+。
+玉林市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/puxixikark/news/commit/8634eb7560a391ee2095eac60ee58834dcf85d10
+。
+玉溪市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/ratalongferreaso/shipin/commit/6b0ca58f82b5a1f0c48047677d5f8121d67e53df
+。
+余姚市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/preaslson/wuhan/commit/420d1fc2db978c6987e4e788823bf97a884bdb47
+。
+禹州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/0a2337418909fca0fd1ef6e90ea07dca49ef1c9d
+。
+岳阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/6ff216715f376a673f44515bd779bab291ba26ac
+。
+云浮市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/puxixikark/news/commit/04f6a02e5d8a93e4b6c12999d4773906c927b136
+。
+枣庄市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/ba12f50720e5fd26a6cbfe0ae5d8f4453d543b5c
+。
+湛江市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/preaslson/wuhan/commit/4792a8554470a468ce22a85d431bbbe3d0b474f5
+。
+张家界市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/puxixikark/news/commit/0944efddc736a5c6c5ca3e913dd030b4fa3ad51e
+。
+张家口市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/d34f2bffee13fee8282a0fd3c07558f786c69973
+。
+章丘市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/6a3f143f571538751279a62ae05ce2c00d9b483e
+。
+漳州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/preaslson/wuhan/commit/0fc29d5d18d3ca5cce1805186eedf5eec24f8ee7
+。
+肇庆市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/d993b060081c65caf19b0b75976ce136e821b225
+。
+镇江市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/puxixikark/news/commit/3f43d486fb57412568f94ae28811ddca37f2402a
+。
+郑州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/675431b527f54e97952fd6da2f8dd2d7097e1ad8
+。
+重庆市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/preaslson/wuhan/commit/7052885b2aaa375fe69cda0c6c0b331748bec27b
+。
+中山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/d7279e2e0cf88be4cc2cbc2c9eac529d13a3923d
+。
+周口市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/puxixikark/news/commit/cc6ce19f499a4fb5fed6b0b652a7f8530a72633c
+。
+舟山市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/5f1d87864b0377fbb84d5d92f6dfa275a90a6124
+。
+诸城市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/preaslson/wuhan/commit/f2e57d654aa533c02014bd7f597783f7aab3076e
+。
+珠海市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/puxixikark/news/commit/a88a018fe75a885c3b8a92acc39bda8db67c0023
+。
+株洲市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/3f06a5c0637ef06526560cbd8cbdd62e9a2ba007
+。
+诸暨市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/70a41ac7f209a1f27dc6c97f684f911e74f2b0a3
+。
+庄河市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/preaslson/wuhan/commit/ab3178e5b3c8b6130d0b5f9f6792e0089f03cbf6
+。
+自贡市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/puxixikark/news/commit/21e2325a0c3e30e9846435b874a7c8b7a68f5faa
+。
+资阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/ratalongferreaso/shipin/commit/2700e1c6ae7bc6684a8282eda92461728eed5935
+。
+遵义市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/preaslson/wuhan/commit/61b7a56879907068337aee37bdb304c5dd796a74
+。
+漯河市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/f9be212414df3bb01c8842b4d38af30b943758b0
+。
+鄢陵市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/ratalongferreaso/shipin/commit/0b7d83162b2923d46f3b40475dd7d86124f0ee35
+。
+沭阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/puxixikark/news/commit/93933666b46ba68693f20cd1715c4b1c8f7c81d7
+。
+濮阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/preaslson/wuhan/commit/094aad50ca8a462d4b01c0d720eceab4d5e584ba
+。
+溧阳市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/ratalongferreaso/shipin/commit/e7982285d960a5c4f0a71c5c6ab637ee2464896c
+。
+泸州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/puxixikark/news/commit/3338c0084701a1e05c77518c4c2aa17e0b1ce13f
+。
+衢州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/kevhreylongeo2/chengdu/commit/b469e9567a97a43c7f2af4d23f6009cfbeec6fc2
+。
+亳州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/preaslson/wuhan/commit/1021e26497ff7421464116db3e0bf477b9251e5e
+。
+邳州市菲斯曼壁挂炉显示f.5售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/ratalongferreaso/shipin/commit/0bbdc594b5fa1573eb1b9b9ef51b79590e6987a1
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月13日19时59分32秒*
+*数据来源：新浪财经、公开媒体报道*
